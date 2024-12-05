@@ -1,0 +1,2 @@
+# pratica_integradora_tecnologias_disruptivas
+Exercicio Pratica_integradora_tecnologias_disruptivas
